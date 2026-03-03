@@ -1,1 +1,1 @@
-
+-por ahora me resulta bastante fasil pero no entiendo bien lo de red team y blue team pero creo que lo que mas me gusta es red team
